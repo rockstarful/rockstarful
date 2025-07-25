@@ -1,5 +1,5 @@
 𓂃       " Oh , what a shame that things turned out this way ! "       𓂃
-![image alt](https://github.com/Kadarnis/kadarnis/blob/main/Untitled32_20250724163529.png?raw=true)
+![image alt](https://github.com/rockstarful/rockstarful/blob/main/Untitled32_20250724194324.png?raw=true)
 
 Hi ! I go by Kadar or whatever skin i'm in ! Non fem pronouns
 
